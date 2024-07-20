@@ -1,0 +1,1 @@
+# Mrp-Sticker-Manufacture
